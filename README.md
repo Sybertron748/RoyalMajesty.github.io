@@ -25,6 +25,7 @@
 #### 𝕴 𝖜𝖎𝖑𝖑 𝖊𝖓𝖉 𝖙𝖍𝖎𝖘 𝖜𝖊𝖇𝖘𝖎𝖙𝖊 𝖎𝖓𝖙𝖗𝖔𝖉𝖚𝖈𝖙𝖎𝖔𝖓 𝖓𝖔𝖜. 𝕿𝖍𝖎𝖘 𝖎𝖘 𝕾𝖞𝖇𝖊𝖗𝖙𝖗𝖔𝖓748 𝖘𝖎𝖌𝖓𝖎𝖓𝖌 𝖔𝖚𝖙 𝕽𝖔𝖈𝖐 𝕹 𝕽𝖔𝖑𝖑 𝖋𝖔𝖑𝖐𝖘 🤘🏻
 
 
+![queen-logo-391FCCF2F7-seeklogo com](https://github.com/Sybertron748/Sybertron748.github.io/assets/151154954/8f0c7214-d415-4275-ad72-47cfd7fd7718)
 
-![freddie-mercury-is-totally-control](https://github.com/Sybertron748/Sybertron748.github.io/assets/151154954/3f23062b-d2ca-4f58-b378-46136c9cf7d7)
+
 
