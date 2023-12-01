@@ -1,6 +1,4 @@
-![kisspng-white-queen-logo-jazz-tour-news-of-the-world-5b3130c525d3a9 0495375515299504051549](https://github.com/Sybertron748/Sybertron748.github.io/assets/151154954/e172bf3e-2519-4eec-ad66-066e262a840c)
-
-
+<h1>Queen 1</h1>
 
 𝓦𝓱𝓸 𝓪𝓷𝓭 𝔀𝓱𝓪𝓽 𝓲𝓼 𝓠𝓾𝓮𝓮𝓷?
 > Queen is a British rock band that first aired their music in the 70s, they composed of four members Freddie Mercury (Singer, pianist), Brian May (Lead Guitarist) Roger Taylor (Drummer), and last John Deacon (Bassist)
@@ -24,7 +22,7 @@
 2. 𝓛𝓲𝓿𝓮 𝓪𝓽 𝓦𝓮𝓶𝓫𝓵𝓮𝔂 𝓢𝓽𝓪𝓭𝓲𝓾𝓶'86
 3. 𝓢𝓱𝓮𝓮𝓻 𝓗𝓮𝓪𝓻𝓽 𝓐𝓽𝓽𝓪𝓬𝓴
    
-*Thank you and this is it for my Website. Rock N Roll Everybody!* 🤘🏻
+ 🤘🏻
 
 
 
