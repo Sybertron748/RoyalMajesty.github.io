@@ -1,4 +1,4 @@
-## 𝓠𝓤𝓔𝓔𝓝
+# 𝓠𝓤𝓔𝓔𝓝
 
 Who and what is Queen?
 > Queen is a British rock band that first aired their music in the 70s, they composed of four members Freddie Mercury (Singer, pianist), Brian May (Lead Guitarist) Roger Taylor (Drummer), and last John Deacon (Bassist)
