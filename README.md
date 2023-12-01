@@ -13,6 +13,7 @@ Queen is a British rock band that first aired their music in the 70s, they compo
 > Queen have been a global presence in popular culture for more than half a century. Estimates of their record sales range from 250 million to 300 million, making them one of the world's best-selling music artists. In 1990 Queen received the Brit Award for Outstanding Contribution to British Music. They were inducted into the Rock and Roll Hall of Fame in 2001, and with each member having composed hit singles, all four were inducted into the Songwriters Hall of Fame in 2003. In 2005 they received the Ivor Novello Award for Outstanding Song Collection from the British Academy of Songwriters, Composers, and Authors, and in 2018 they were presented the Grammy Lifetime Achievement Award.
 
 My Favorite Albums in Queen
+
 ![Favorite albums from Queen](https://github.com/Sybertron748/Sybertron748.github.io/assets/151154954/3e4b2598-198f-48dd-bc24-6cc51d6ba6b7)
 
 1. Night at the Opera
