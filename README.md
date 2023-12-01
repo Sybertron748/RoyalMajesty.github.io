@@ -1,7 +1,7 @@
-@font-face { font-Cursive: "Queen"; font-style: oblique; font-weight:normal; font-display: swap }
+## 𝓠𝓤𝓔𝓔𝓝
 
 Who and what is Queen?
-> Queen is a British rock band that first aired their music in the 70s, they composed of four members Freddie Mercury (Singer, pianist), Brian May (Lead Guitarist) Roger Taylor (Drummer) and last John Deacon (Bassist)
+> Queen is a British rock band that first aired their music in the 70s, they composed of four members Freddie Mercury (Singer, pianist), Brian May (Lead Guitarist) Roger Taylor (Drummer), and last John Deacon (Bassist)
 
 ![Queen wallpaper for github](https://github.com/KaiJuTechSupport7408/GojiShintech3.github.io/assets/151154954/6108b7d2-f80d-4fc2-9b70-957809b1fc8a)
 
