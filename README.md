@@ -30,7 +30,7 @@
 
 > [𝓨𝓸𝓾'𝓻𝓮 𝓜𝔂 𝓑𝓮𝓼𝓽 𝓕𝓻𝓲𝓮𝓷𝓭](https://www.youtube.com/watch?v=HaZpZQG2z10](url))   
 > [𝓑𝓸𝓱𝓮𝓶𝓲𝓪𝓷 𝓡𝓱𝓪𝓹𝓼𝓸𝓭𝔂](https://www.youtube.com/watch?v=vbvyNnw8Qjg](url))
-> [𝓘𝓷 𝓽𝓱𝓮 𝓛𝓪𝓹𝓼 𝓸𝓯 𝓽𝓱𝓮 𝓖𝓸𝓭𝓼](https://www.youtube.com/watch?v=YNVjf506H6s)
+> [𝓘𝓷 𝓽𝓱𝓮 𝓛𝓪𝓹 𝓸𝓯 𝓽𝓱𝓮 𝓖𝓸𝓭𝓼](https://www.youtube.com/watch?v=YNVjf506H6s)
 
 
 
