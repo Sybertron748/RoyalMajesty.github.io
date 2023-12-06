@@ -21,16 +21,16 @@
 
 
 
-1. 𝓝𝓲𝓰𝓱𝓽 𝓪𝓽 𝓽𝓱𝓮 𝓞𝓹𝓮𝓻𝓪
+1. 𝓝𝓲𝓰𝓱𝓽 𝓪𝓽 𝓽𝓱𝓮 𝓞𝓹𝓮𝓻𝓪  
 2. 𝓛𝓲𝓿𝓮 𝓪𝓽 𝓦𝓮𝓶𝓫𝓵𝓮𝔂 𝓢𝓽𝓪𝓭𝓲𝓾𝓶
 3. 𝓢𝓱𝓮𝓮𝓻 𝓗𝓮𝓪𝓻𝓽 𝓐𝓽𝓽𝓪𝓬𝓴
 
 
 > 𝓥𝓲𝓭𝓮𝓸 𝓵𝓲𝓷𝓴𝓼
 
-> [𝓨𝓸𝓾'𝓻𝓮 𝓜𝔂 𝓑𝓮𝓼𝓽 𝓕𝓻𝓲𝓮𝓷𝓭](https://www.youtube.com/watch?v=HaZpZQG2z10](url))   
-> [𝓑𝓸𝓱𝓮𝓶𝓲𝓪𝓷 𝓡𝓱𝓪𝓹𝓼𝓸𝓭𝔂](https://www.youtube.com/watch?v=vbvyNnw8Qjg](url))
-> [𝓘𝓷 𝓽𝓱𝓮 𝓛𝓪𝓹 𝓸𝓯 𝓽𝓱𝓮 𝓖𝓸𝓭𝓼](https://www.youtube.com/watch?v=YNVjf506H6s)
+> [𝓨𝓸𝓾'𝓻𝓮 𝓜𝔂 𝓑𝓮𝓼𝓽 𝓕𝓻𝓲𝓮𝓷𝓭](https://open.spotify.com/track/4vhVDkSx9RSb2k6mWFMYNI)
+> [𝓑𝓸𝓱𝓮𝓶𝓲𝓪𝓷 𝓡𝓱𝓪𝓹𝓼𝓸𝓭𝔂](https://open.spotify.com/track/2XbcujvemK0hGh0Ob4HAXQ)
+> [𝓘𝓷 𝓽𝓱𝓮 𝓛𝓪𝓹 𝓸𝓯 𝓽𝓱𝓮 𝓖𝓸𝓭𝓼](https://open.spotify.com/track/2XbcujvemK0hGh0Ob4HAXQ)
 
 
 
