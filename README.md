@@ -28,9 +28,9 @@
 
 > 𝓥𝓲𝓭𝓮𝓸 𝓵𝓲𝓷𝓴𝓼
 
-> [𝓨𝓸𝓾'𝓻𝓮 𝓜𝔂 𝓑𝓮𝓼𝓽 𝓕𝓻𝓲𝓮𝓷𝓭](https://open.spotify.com/track/4vhVDkSx9RSb2k6mWFMYNI)
-> [𝓑𝓸𝓱𝓮𝓶𝓲𝓪𝓷 𝓡𝓱𝓪𝓹𝓼𝓸𝓭𝔂](https://open.spotify.com/track/2XbcujvemK0hGh0Ob4HAXQ)
-> [𝓘𝓷 𝓽𝓱𝓮 𝓛𝓪𝓹 𝓸𝓯 𝓽𝓱𝓮 𝓖𝓸𝓭𝓼](https://open.spotify.com/track/2XbcujvemK0hGh0Ob4HAXQ)
+[𝓨𝓸𝓾'𝓻𝓮 𝓜𝔂 𝓑𝓮𝓼𝓽 𝓕𝓻𝓲𝓮𝓷𝓭](https://open.spotify.com/track/4vhVDkSx9RSb2k6mWFMYNI)
+[𝓑𝓸𝓱𝓮𝓶𝓲𝓪𝓷 𝓡𝓱𝓪𝓹𝓼𝓸𝓭𝔂](https://open.spotify.com/track/2XbcujvemK0hGh0Ob4HAXQ)
+[𝓘𝓷 𝓽𝓱𝓮 𝓛𝓪𝓹 𝓸𝓯 𝓽𝓱𝓮 𝓖𝓸𝓭𝓼](https://open.spotify.com/track/2XbcujvemK0hGh0Ob4HAXQ)
 
 
 
