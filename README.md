@@ -1,4 +1,4 @@
-# 𝕼𝖀𝕰𝕰𝕹
+# 𝓠𝓾𝓮𝓮𝓷
 
 𝓦𝓱𝓸 𝓪𝓷𝓭 𝔀𝓱𝓪𝓽 𝓲𝓼 𝓠𝓾𝓮𝓮𝓷?
 > Queen is a British rock band that first aired their music in the 70s, they composed of four members Freddie Mercury (Singer, pianist), Brian May (Lead Guitarist) Roger Taylor (Drummer), and John Deacon (Bassist)
@@ -16,21 +16,21 @@
 
 > 𝓜𝔂 𝓕𝓪𝓿𝓸𝓻𝓲𝓽𝓮 𝓐𝓵𝓫𝓾𝓶𝓼 𝓲𝓷 𝓠𝓾𝓮𝓮𝓷
 
-![Favorite albums from Queen](https://github.com/Sybertron748/Sybertron748.github.io/assets/151154954/3e4b2598-198f-48dd-bc24-6cc51d6ba6b7)
-
+![Favorite albums from Queen](https://github.com/Sybertron748/RoyalMajesty.github.io/assets/151154954/91e89252-82e6-424c-86c0-5ecaed9250de)
 
 
 
 1. 𝓝𝓲𝓰𝓱𝓽 𝓪𝓽 𝓽𝓱𝓮 𝓞𝓹𝓮𝓻𝓪  
-2. 𝓛𝓲𝓿𝓮 𝓪𝓽 𝓦𝓮𝓶𝓫𝓵𝓮𝔂 𝓢𝓽𝓪𝓭𝓲𝓾𝓶
+2. 𝓝𝓮𝔀𝓼 𝓸𝓯 𝓽𝓱𝓮 𝓦𝓸𝓻𝓵𝓭
 3. 𝓢𝓱𝓮𝓮𝓻 𝓗𝓮𝓪𝓻𝓽 𝓐𝓽𝓽𝓪𝓬𝓴
 
 
-> 𝓥𝓲𝓭𝓮𝓸 𝓵𝓲𝓷𝓴𝓼
 
-[𝓨𝓸𝓾'𝓻𝓮 𝓜𝔂 𝓑𝓮𝓼𝓽 𝓕𝓻𝓲𝓮𝓷𝓭](https://open.spotify.com/track/4vhVDkSx9RSb2k6mWFMYNI)
-[𝓑𝓸𝓱𝓮𝓶𝓲𝓪𝓷 𝓡𝓱𝓪𝓹𝓼𝓸𝓭𝔂](https://open.spotify.com/track/2XbcujvemK0hGh0Ob4HAXQ)
-[𝓘𝓷 𝓽𝓱𝓮 𝓛𝓪𝓹 𝓸𝓯 𝓽𝓱𝓮 𝓖𝓸𝓭𝓼](https://open.spotify.com/track/2XbcujvemK0hGh0Ob4HAXQ)
+https://open.spotify.com/track/4vhVDkSx9RSb2k6mWFMYNI
+https://open.spotify.com/track/2XbcujvemK0hGh0Ob4HAXQ 
+https://open.spotify.com/track/2XbcujvemK0hGh0Ob4HAXQ
+https://open.spotify.com/track/4ObxJP7kYUkBqpiklCzrBo
+https://open.spotify.com/track/4ObxJP7kYUkBqpiklCzrBo
 
 
 
