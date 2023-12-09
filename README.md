@@ -20,17 +20,11 @@
 
 
 
-1. 𝓝𝓲𝓰𝓱𝓽 𝓪𝓽 𝓽𝓱𝓮 𝓞𝓹𝓮𝓻𝓪  
+1. 𝓝𝓲𝓰𝓱𝓽 𝓪𝓽 𝓽𝓱𝓮 𝓞𝓹𝓮𝓻𝓪   
 2. 𝓝𝓮𝔀𝓼 𝓸𝓯 𝓽𝓱𝓮 𝓦𝓸𝓻𝓵𝓭
 3. 𝓢𝓱𝓮𝓮𝓻 𝓗𝓮𝓪𝓻𝓽 𝓐𝓽𝓽𝓪𝓬𝓴
 
-
-
-https://open.spotify.com/track/4vhVDkSx9RSb2k6mWFMYNI
-https://open.spotify.com/track/2XbcujvemK0hGh0Ob4HAXQ 
-https://open.spotify.com/track/2XbcujvemK0hGh0Ob4HAXQ
-https://open.spotify.com/track/4ObxJP7kYUkBqpiklCzrBo
-https://open.spotify.com/track/4ObxJP7kYUkBqpiklCzrBo
+![BE  WARNED This photo has strobing effects that may affect photosensitive viewers](https://github.com/Sybertron748/RoyalMajesty.github.io/assets/151154954/e93507b4-122b-4546-b002-4212bf4efb3e)
 
 
 
