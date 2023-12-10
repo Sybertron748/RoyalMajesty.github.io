@@ -14,17 +14,17 @@
 > Queen has been a global popular culture presence for more than half a century. Estimates of their record sales range from 250 million to 300 million, making them one of the world's best-selling music artists. In 1990 Queen received the Brit Award for Outstanding Contribution to British Music. They were inducted into the Rock and Roll Hall of Fame in 2001, and with each member having composed hit singles, all four were inducted into the Songwriters Hall of Fame in 2003. In 2005 they received the Ivor Novello Award for Outstanding Song Collection from the British Academy of Songwriters, Composers, and Authors, and in 2018 they were presented with the Grammy Lifetime Achievement Award.
 
 
-> 𝓜𝔂 𝓕𝓪𝓿𝓸𝓻𝓲𝓽𝓮 𝓐𝓵𝓫𝓾𝓶𝓼 𝓲𝓷 𝓠𝓾𝓮𝓮𝓷
+> 𝓜𝔂 𝓣𝓸𝓹 3 𝓕𝓪𝓿𝓸𝓻𝓲𝓽𝓮 𝓐𝓵𝓫𝓾𝓶𝓼 𝓲𝓷 𝓠𝓾𝓮𝓮𝓷
 
-![Favorite albums from Queen](https://github.com/Sybertron748/RoyalMajesty.github.io/assets/151154954/91e89252-82e6-424c-86c0-5ecaed9250de)
+- 𝓘𝓷𝓷𝓾𝓮𝓷𝓭𝓸 
+- 𝓝𝓮𝔀𝓼 𝓸𝓯 𝓽𝓱𝓮 𝓦𝓸𝓻𝓵𝓭
+- 𝓢𝓱𝓮𝓮𝓻 𝓗𝓮𝓪𝓻𝓽 𝓐𝓽𝓽𝓪𝓬𝓴
+ 
+![Favorite albums from Queen](https://github.com/Sybertron748/RoyalMajesty.github.io/assets/151154954/dd4f6274-10fc-48fa-8597-6465974406c9)
 
 
 
-1. 𝓝𝓲𝓰𝓱𝓽 𝓪𝓽 𝓽𝓱𝓮 𝓞𝓹𝓮𝓻𝓪   
-2. 𝓝𝓮𝔀𝓼 𝓸𝓯 𝓽𝓱𝓮 𝓦𝓸𝓻𝓵𝓭
-3. 𝓢𝓱𝓮𝓮𝓻 𝓗𝓮𝓪𝓻𝓽 𝓐𝓽𝓽𝓪𝓬𝓴
-
-![BE  WARNED This photo has strobing effects that may affect photosensitive viewers](https://github.com/Sybertron748/RoyalMajesty.github.io/assets/151154954/e93507b4-122b-4546-b002-4212bf4efb3e)
+(https://github.com/Sybertron748/RoyalMajesty.github.io/assets/151154954/35b7bb77-894f-4845-8d2c-6e35492181d3)
 
 
 
