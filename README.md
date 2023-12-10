@@ -24,8 +24,5 @@
 
 
 
-(https://github.com/Sybertron748/RoyalMajesty.github.io/assets/151154954/35b7bb77-894f-4845-8d2c-6e35492181d3)
-
-
 
 ![queen-logo-391FCCF2F7-seeklogo com](https://github.com/Sybertron748/Sybertron748.github.io/assets/151154954/8f0c7214-d415-4275-ad72-47cfd7fd7718)
