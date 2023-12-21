@@ -16,12 +16,16 @@
 
 > 𝓜𝔂 𝓣𝓸𝓹 3 𝓕𝓪𝓿𝓸𝓻𝓲𝓽𝓮 𝓐𝓵𝓫𝓾𝓶𝓼 𝓲𝓷 𝓠𝓾𝓮𝓮𝓷
 
-- 𝓘𝓷𝓷𝓾𝓮𝓷𝓭𝓸 
-- 𝓝𝓮𝔀𝓼 𝓸𝓯 𝓽𝓱𝓮 𝓦𝓸𝓻𝓵𝓭
-- 𝓢𝓱𝓮𝓮𝓻 𝓗𝓮𝓪𝓻𝓽 𝓐𝓽𝓽𝓪𝓬𝓴
+- 𝐼𝓃𝓃𝓊𝑒𝓃𝒹𝑜
+- 𝒬𝓊𝑒𝑒𝓃 𝐼𝐼
+- 𝒮𝒽𝑒𝑒𝓇 𝐻𝑒𝒶𝓇𝓉 𝒜𝓉𝓉𝒶𝒸𝓀
  
-![Favorite albums from Queen](https://github.com/Sybertron748/RoyalMajesty.github.io/assets/151154954/dd4f6274-10fc-48fa-8597-6465974406c9)
+![Favorite albums from Queen](https://github.com/Sybertron748/RoyalMajesty.github.io/assets/151154954/a4726764-32a3-4f39-bd5f-7b30411b30ea)
 
 
+
+Lap of the Gods Revisited By Queen Live in Hammersmith Odeon, London
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YNVjf506H6s?si=TaoHyLhD1jQ_rVd3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 ![queen-logo-391FCCF2F7-seeklogo com](https://github.com/Sybertron748/Sybertron748.github.io/assets/151154954/8f0c7214-d415-4275-ad72-47cfd7fd7718)
