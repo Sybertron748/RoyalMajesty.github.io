@@ -3,7 +3,6 @@
 𝓦𝓱𝓸 𝓪𝓷𝓭 𝔀𝓱𝓪𝓽 𝓲𝓼 𝓠𝓾𝓮𝓮𝓷?
 > Queen is a British rock band that first aired their music in the 70s, they composed of four members Freddie Mercury (Singer, pianist), Brian May (Lead Guitarist) Roger Taylor (Drummer), and John Deacon (Bassist)
 
-![Queen wallpaper for github](https://github.com/KaiJuTechSupport7408/GojiShintech3.github.io/assets/151154954/6108b7d2-f80d-4fc2-9b70-957809b1fc8a)
 
 ## 𝓑𝓻𝓲𝓮𝓯 𝓗𝓲𝓼𝓽𝓸𝓻𝔂
 
@@ -25,7 +24,7 @@
 
 
 Lap of the Gods Revisited By Queen Live in Hammersmith Odeon, London
-
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2vcnN4rPsM4?si=KIhOkItmcZMQt8o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboardwrite; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 
 ![queen-logo-391FCCF2F7-seeklogo com](https://github.com/Sybertron748/Sybertron748.github.io/assets/151154954/8f0c7214-d415-4275-ad72-47cfd7fd7718)
