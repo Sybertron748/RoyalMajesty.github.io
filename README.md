@@ -24,7 +24,9 @@
 
 
 Lap of the Gods Revisited By Queen Live in Hammersmith Odeon, London
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2vcnN4rPsM4?si=KIhOkItmcZMQt8o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboardwrite; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2vcnN4rPsM4?si=KIhOkItmcZMQt8o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YNVjf506H6s?si=TaoHyLhD1jQ_rVd3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 
 ![queen-logo-391FCCF2F7-seeklogo com](https://github.com/Sybertron748/Sybertron748.github.io/assets/151154954/8f0c7214-d415-4275-ad72-47cfd7fd7718)
