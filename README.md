@@ -21,8 +21,8 @@
  
 ![Favorite albums from Queen](https://github.com/Sybertron748/RoyalMajesty.github.io/assets/151154954/a4726764-32a3-4f39-bd5f-7b30411b30ea)
 
-> Innuendo By Queen (They weren't played live due to the illness of their frontman)
-<iframe width="560" height="315" src="https://www.youtube.com/embed/R17Ir0elcFA?si=Hn0CaTZOHkZl81GR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+> Innuendo By Queen ( From the Album Innuendo 1991)
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g2N0TkfrQhY?si=_Wap3QSL45NjNDd5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 > White Queen As it began (Live at The Rainbow 1974)
 <iframe width="560" height="315" src="https://www.youtube.com/embed/pw_XHPoPmE0?si=U5Ch4k9eW7oOT6UW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
